@@ -31,7 +31,7 @@ Portuguese (native) · English (professional) · French (learning) · Chinese (l
 
 ### 📫 Get in touch
 
-- LinkedIn: [https://linkedin.com/in/YOUR-USERNAME](https://www.linkedin.com/in/fernando-neculqueo-78096616a/)
+- [LinkedIn](https://www.linkedin.com/in/fernando-neculqueo-78096616a/)
 - Email: fneculqueo@sucden.com / fernandoneculqueo@hotmail.com
 
 <!--
